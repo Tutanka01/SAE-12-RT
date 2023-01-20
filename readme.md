@@ -1,1 +1,3 @@
+Pour tout voir, il faut regarder le pdf, et appuyer sur more pages.
 
+SI vous voulez savoir la note, bah...
